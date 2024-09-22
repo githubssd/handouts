@@ -7,3 +7,5 @@ https://chatgpt.com/share/66ee50bc-e79c-800a-a6c1-79d9eaa4006a
 
 
 https://chatgpt.com/share/66f0540c-ce28-800a-a3a7-6d16b150106f
+
+https://chatgpt.com/share/66f074a9-3354-800b-9f24-ee8925247988
